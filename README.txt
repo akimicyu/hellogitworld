@@ -1,4 +1,4 @@
-I love Fukuoka and Japan!
+私は福岡と日本が好きです。
 
 輪他
 
